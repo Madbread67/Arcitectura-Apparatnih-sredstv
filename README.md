@@ -1,0 +1,1 @@
+# Arcitectura-Apparatnih-sredstv
